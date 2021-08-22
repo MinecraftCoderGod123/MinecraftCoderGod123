@@ -1,0 +1,5 @@
+- 👋 Hi, I’m MinecraftCoderGod123
+- 👀 I’m interested in coding websites, games and more!
+- 🌱 I’m currently learning coding, math, reading and (once again) more!!!
+- 💞️ I’m looking to collaborate on coding websites and games
+- 📫 How to reach me kjaffe@oceancs.org
